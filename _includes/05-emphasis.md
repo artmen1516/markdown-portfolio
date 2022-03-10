@@ -1,0 +1,4 @@
+- **Self-taught person** 📚
+- **Attention to detail** 🔍
+- **Responsible** 🧍
+- **Fast learner** 🏃
